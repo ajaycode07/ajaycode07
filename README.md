@@ -1,6 +1,8 @@
 # 💫 Hi 👋, I'm ajay kumar behera
 ** Aspiring software developer |Exploring AI Technologies**
 
+![Image](https://github.com/user-attachments/assets/a39bb08c-c2af-48dc-8ce2-ff83b07859ca)
+
 Email Me 👉 ✉️ **miltoajay2005@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 <!-- Snake Game Repo View -->
