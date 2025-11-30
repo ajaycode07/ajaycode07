@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm ajay kumar behera
 ** Aspiring software developer |Exploring AI Technologies**
 
 Email Me 👉 ✉️ **miltoajay2005@gmail.com** For Collaboration/Project or Anything Else. 😊😊
